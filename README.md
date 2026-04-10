@@ -1,7 +1,7 @@
 ## Hi there 👋
 
 
-**jdiaz634/jdiaz634** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Hello! My name is Jocelyn Diaz
 
 
 - 🌱 I’m currently majoring in aerospace engineering 
