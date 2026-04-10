@@ -16,3 +16,5 @@ Hello! My name is Jocelyn Diaz
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I actually do not know any coding language but I am always willing to learn
 
+
+![ME!](images/file:///Jocelyn_Diaz%20Pose%201%20%281%29-1.jpg)
