@@ -14,6 +14,3 @@ Hello! My name is Jocelyn Diaz
     Personal email: jocelyn.dm0103@gmail.com
     Phone number: (773) 456-1199
 - 😄 Pronouns: She/Her
--
-
-![ME!](images/file:///Jocelyn_Diaz%20Pose%201%20%281%29-1.jpg)
